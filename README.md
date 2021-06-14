@@ -8,7 +8,7 @@
 
 
 ## 🤗
-Hi, I'm pororili-a junior Applicataion Developer.
+Hi, I'm Pororili-a junior Applicataion Developer.
 
 
 
