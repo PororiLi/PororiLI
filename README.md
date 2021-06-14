@@ -9,7 +9,7 @@
 
 
 ## 🤗
-Hi, I'm Pororili-a junior Applicataion Developer.
+Hi, I'm PororiLi-a junior Applicataion Developer.
 
 
 
